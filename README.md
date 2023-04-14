@@ -1,1 +1,1 @@
-# Aray-z-Tasar-m-
+# Arayuz tasarımı-
